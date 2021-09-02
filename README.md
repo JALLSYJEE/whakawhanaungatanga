@@ -1,0 +1,2 @@
+# whakawhanaungatanga
+Tangata-whenua/-whanau-/
